@@ -1,4 +1,4 @@
-### Hi there 👋
+### hi xx
 ### contact info: discord- ananyerz.com#9461
 <!--
 **ananyamehtax/ananyamehtax** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
